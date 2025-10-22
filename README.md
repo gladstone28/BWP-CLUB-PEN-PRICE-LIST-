@@ -1,25 +1,20 @@
-### Bamboo and wooden Products Wholesaler's Club
-### Private and Confidential: Only to be shared with 4 members of the Club
+**lyforx bamboo pens from Amazon**
 
-#### The Club is now distributing 2 models of Pens:
-
-
-##### The Factory prices are as follows:(members buy at this price)
-
-1. Slimline - 10:00 USD each
-2. Classic Twist - 15.00 USD each
-
-**If you are buying in bulk (more than 10 pens) there is a price reduction of 2.00 USD each**
+100 pens for JMD 6,312.72
 
 
+**Shipme cost**
 
-#### The recommended Wholesale prices are as follows:(members sell at this price)
+$2,220.42JMD
+
+TOTAL COST FOR 100 PENS $8,533.13
 
 
-1. Slimline - 14.00 USD each
-2. Classic Twist - 20.00 USD each
+**COST PER PEN $85.3314JMD - to buy and ship**
 
-**If you are selling in bulk (more than 10 pens) it is recommended that you offer a price reduction of 2.00 USD each**
 
-![](classic-and-slimline-pen.jpeg)
-**Graphic of Slimline and Classic Twist pens**
+CLAUDIA GRIFFITHS SCREENPRINTING $1600JMD set up cost $50JMD per pen
+100 pens therefore cost $1,600.00JMD + $5,000.00JMD = $6,600.00
+COST PER PEN FOR SCREENPRINTING - $66.00JMD
+
+**Each Screenprinted pen cost $85.3314JMD + $66.00JMD = $151.3314JMD**
